@@ -1,6 +1,6 @@
 <h4 align="center">
  
-![c633c20ede82f0e0ced7d570dbe3a1f3](https://thumbs.gfycat.com/PartialCautiousGiraffe-mobile.jpg)
+![c633c20ede82f0e0ced7d570dbe3a1f3](https://thumbs.gfycat.com/PartialCautiousGiraffe-mobile.mp4)
 
 
 ### Olá!! Eu sou Raphael Trindade ou SlaveFox e estou aprendendo a programar!! <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px"></h2>
